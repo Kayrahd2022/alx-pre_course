@@ -1,1 +1,1 @@
-"*" Coding is fun hehehe...:zipper_mouth_face:
+Coding is fun hehehe...:zipper_mouth_face:
